@@ -8,7 +8,7 @@ Di mis primeros pasos en [Despegar](https://www.despegar.com.ar)
 
 ✨ Actualmente trabajo en [Pomelo](https://pomelo.la) ✨
 
-De hobby tengo a la seguridad informatica, siempre trato de romper cosas.
+De hobby tengo a la seguridad informatica, siempre intentando romper cosas.
 
 Me considero DJ y gamer.
 
