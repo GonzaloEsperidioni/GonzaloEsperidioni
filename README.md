@@ -10,7 +10,7 @@ Di mis primeros pasos en [Despegar](https://www.despegar.com.ar)
 
 De hobby tengo a la seguridad informatica, siempre intentando romper cosas.
 
-Me considero DJ y gamer.
+DJ y gamer.
 
 
 <!--
